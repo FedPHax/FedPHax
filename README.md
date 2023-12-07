@@ -7,13 +7,13 @@
 
 - 🌱 I am learning **Computer Science** 
 
-- 🤝 My bio: **http://fedp.ddnsking.com**
+- 🤝 My bio: **https://liawcute.space**
 
-- 👨‍💻 My projects are available at: **https://github.com/FedPHax**
+- 👨‍💻 My projects are available at: **https://github.com/liawcute**
 
-- 📝 My blogs are available at: **https://github.com/FedPHax**
+- 📝 My blogs are available at: **https://github.com/liawcute**
 
-- 📫 How to reach me: **https://t.me/xfonqicy** 
+- 📫 How to reach me: **https://t.me/liawcute** 
 
 - ⚡ Fun fact: **I am producer website and program
 
